@@ -7,7 +7,7 @@ donde el miedo al agua nació.</br>
 Alla donde toque nadar pensaré,</br>
 si podré surcar la ola,</br>
 o si me ahogare,</br>
-si esa marea con la que subí,
+si esa marea con la que subí,</br>
 me hará bajar otra vez.</br>
 </br>
 Pues que sepa el mar que pensé,</br>
